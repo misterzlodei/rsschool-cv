@@ -1,1 +1,1 @@
-https://misterzlodei.github.io/rsschool-cv/cv
+https://misterzlodei.github.io/rsschool-cv/
